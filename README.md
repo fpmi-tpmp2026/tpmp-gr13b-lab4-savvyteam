@@ -1,1 +1,1 @@
-# tpmp-gr13b-lab4-savvyteam
+# tpmp-gr13b-lab6-Stanislavv-Kabanov
